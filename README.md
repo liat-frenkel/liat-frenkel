@@ -9,5 +9,5 @@ Me gusta observar lo que me rodea, trabajar y aprender junto a otras personas, y
 - Animación
 
 ## CONTÁCTAME
-[Instagram] (https://www.instagram.com/liatfrenk/)
-[Whatsapp] 
+[Instagram](https://www.instagram.com/liatfrenk/)
+[Whatsapp](https://www.instagram.com/liatfrenk?igsh=MW5xOTR2bWx1ODR5Ng==)
